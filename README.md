@@ -8,3 +8,11 @@
 
 
 <img src="https://github.com/lordlwas/lordlwas/blob/main/Crime.jpg?raw=true?raw=true" alt="Alt Text" width="280" height="70">
+***
+
+
+PonyTown Info
+
+You are getting ignored if we aren't friends/I don't know if you're a friend when I have dniuf in name.
+
+C+H all the time please, restricted to friends only when dniuf in name.
