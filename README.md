@@ -13,6 +13,6 @@
 
 PonyTown Info
 
-You are getting ignored if we aren't friends/I don't know if you're a friend when I have dniuf in name.
+I have the tendency to ignore people I don't reconize.
 
-C+H all the time please, restricted to friends only when dniuf in name.
+Friends are free to C+H all the time! If you aren't a friend and I don't have C+H in name, just ask!
