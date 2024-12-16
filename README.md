@@ -7,6 +7,8 @@ PonyTown Info
 I have the tendency to ignore people I don't reconize.
 
 Friends are free to C+H all the time! If you aren't a friend and I don't have C+H in name, just ask!
+
+SO SORRY IF I ACCIDENTLY "IGNORE" YOU, I DON'T NOTICE THE WHISPERS MOST OF THE TIME IF I'M FOCUSED ON SOMETHING ELSE OR NOT CHECKING FOR THE WHISPERS!!
 ***
 
 
