@@ -10,4 +10,6 @@ Please don't cover me, unless I've already went behind you, random covering when
 
 Feel free to yap, you can vent, I listen but I'm not good at responding so make sure you are alright with that before doing so
 
-I can yap or be quiet, scared to yap sometimes cause I could tell a new person every single thing about myself just cause I found them comfortable, but it might annoy them
+I can yap or be quiet, scared to yap sometimes cause I could tell a new person every single thing about myself just cause I found them comfortable, but it might annoy thema
+
+PS, I tend to be ponies that I kin! Sometimes I don't put kin but you can just check my listography for my kins
