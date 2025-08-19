@@ -1,3 +1,3 @@
 give me cuddles
 
-![me](https://tenor.com/view/yippee-creature-autism-creature-autism-yippee-tbh-creature-gif-18028501342418737771)
+<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/5d96d752-b418-47dd-bf0c-03ea7004c163" />
