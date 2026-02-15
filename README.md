@@ -6,5 +6,5 @@
 
 
 <p align="center">
-  <img src="https://github.com/lordlwas/lordlwas/blob/main/blinkiesCafe-Pp.gif" />
+  <img src="https://github.com/lordlwas/lordlwas/blob/main/blinkiesCafe-am.gif" />
 </p>
