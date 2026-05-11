@@ -19,3 +19,6 @@ not referring to whispering, ofc - i try to respond to those but my eyes are alw
 </p>
 
 　　　　　　　　　　　　　　　[fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) is an alterhuman identify, not relating to a character or liking
+<p align="center">
+you can still like or relate to your kintype
+</p>    
